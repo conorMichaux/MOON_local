@@ -1,6 +1,4 @@
-Moonraven
-
-chapter ii.a
+# Moonraven
 
 The bell rang several times.
 
