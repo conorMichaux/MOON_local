@@ -9,11 +9,10 @@ was cold and hard, it was still only so in relative terms. If the moon could hol
 accountable, perhaps the sun might free him. If the moon's clasp too resolute, maybe
 the sun could persuade a softer course. But yes, driving. Alone, soft. And always at
 night. Dr. Otsuka craved drives after droughts. It was his only way to avoid the fear
-of their blanknesses. This drive, though, was under different circumstances. It was a
-drive of remembering. Of how he'd been, of _what_ he'd been in this last. If he
-weren't so explicitly craving the drive, he'd probably encourage someone in his shoes
-to do something similar themselves anyway. So why not. Burn some gas, animate an
-engine.
+of their blanknesses. This drive, though, was different. It was a drive of
+remembering. Of how he'd been, of _what_ he'd been in this last. If he weren't so
+explicitly craving the drive, he'd probably encourage someone in his shoes to do
+something similar themselves anyway. So why not. Burn some gas, animate an engine.
 
 &nbsp; &nbsp; &nbsp; &nbsp; Impossible to know, but images sometimes came to the
 surface of his mind lately. Impossible to know. Impossible. Yet he still wondered if
@@ -33,16 +32,16 @@ beet blood droplets.
 waiting for him. Driving now and looking back at this, he wanted to scoff. As if he
 himself were the patient. Although she had something for him and he recognized now
 that it was something he'd needed. And she? Uniquely positioned to afford it to him.
-The scoff, he suppressed it again. Good at that apparently.
+The scoff, suppressed it again. Good at that apparently.
 
 &nbsp; &nbsp; &nbsp; &nbsp; More droplets. This time for the windshield. Caroline
 showing him had been odd enough on its own. He didn't even immediately recognize
 her---yet there she was, sleeping in his chair by the bed. Jolted up when she
 realized he was starting to wake. It took some time, but she eventually showed him a
 stethoscope. One that he recognized in his heart but found nowhere in his mind, and
-she began to explain that he needed to take his shirt off so she could "read" his
-heart. To him. _To_ me? he'd said. _Yes_, she'd responded. With his shirt where his
-dog used to lay, she began to read his heart.
+she began to explain that he needed to take his shirt off so she could "read" him. To
+him. _To_ me? he'd said. _Yes_, she'd responded, without any elaboration. With his
+shirt where his dog used to lay, she began to read his heart.
 
 &nbsp; &nbsp; &nbsp; &nbsp; Maybe that's why the tears weren't coming here in the
 car: they'd already poured in the bed. He had had trouble breathing at times during
@@ -51,12 +50,12 @@ himself. He didn't know much about Christianity but part of him imagined that th
 reading wasn't unlike the Latin readings of old. And she? Impossible as ever. Her
 words came to him like _pharmakon_, marching molecule-by-molecule into his ears. And
 she? Ears plugged by the stethoscope. She'd brought it out from an old dopp bag after
-explaining a little of what they were about to do. It's leather brand new, despite
-her explanation of where it came from. When she first pulled out the stethoscope,
-made contact with it I mean,---impossible. I'll try, but her reaction. Just,
-impossible. "Measure twice, cut once"---sure, if you like. But by contrast, this kind
-of measuring didn't matter. Wasn't countable, was lump-sum. Because he later learned
-knew precisely what she began to feel and to see. Of him.
+explaining a little of what they were about to do. Its leather brand new, despite her
+explanation of where it came from. When she first pulled out the stethoscope, made
+contact with it I mean,---impossible. I'll try, but her reaction. Just, impossible.
+"Measure twice, cut once"---sure, if you like. But by contrast, this kind of
+measuring didn't matter. Wasn't countable, came in lump-sum and as a loaf. Because he
+later learned, later knew precisely what she began to feel and to see. Of him.
 
 &nbsp; &nbsp; &nbsp; &nbsp; She was holding his childhood. And her reaction to its
 touch. Her reaction tasted just as good as her reading. Her tone, her mood. Laughter
@@ -65,20 +64,18 @@ time. For now it was to be felt and heard and seen and...---by she and him. No o
 else.
 
 &nbsp; &nbsp; &nbsp; &nbsp; With tenderness, she narrated the moments he felt safest
-in his childhood. And those moments he'd never shared with anyone. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+in his childhood. And those moments he'd never shared with anyone, she narrated those
+too. He discovered the love she herself was discovering for him. For they each
+realized that, on this reading, that the truth and the reality of what he carried
+needed another to be truly real. Without her, without her seeing him in all his
+vulnerability, without *that*, his carried-self could be no more than a mirage: to
+him or to anyone else. And the love. Yes, the love. It stretched his heart like the
+sails of a boat that had been docked for years; or swelled the very same heart of his
+but as if it were a kite, with streamers and strings and sinews. Air escaped through
+the gaps and tears of his heart's sails, his heart's fabric---but the lost air paled
+in comparison to the snapping and the popping and the cracking of his heart's
+skeleton, for the first time in... Caroline thanked him and left. Her story became a
+black box to him again as she walked out of his home with embers freshly scraped off
+his soul. A whisper of awe in her shutting of the door.
 
 
