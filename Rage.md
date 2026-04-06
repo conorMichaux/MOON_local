@@ -3,9 +3,9 @@
 &nbsp; &nbsp; &nbsp; &nbsp; Soft, alone. Driving, night. He knew the droughts had
 held him by the arm and asked him, earnestly, to face up. To accept it. His
 profession fell away, his experiences with patients did too. He wrenched at the hand.
-It wouldn't give and he felt as powerless as a child in a parent's iron grip.
-Something, however odd it might have been, began to click for him: while yes the grip
-was cold and hard, it was still only so in relative terms. If the moon could hold him
+It wouldn't give and he felt as powerless as a child in a parent's grip. Something,
+however odd it might have been, began to click for him: while yes the grip was cold
+and hard, it was still only so in relative terms. If the moon could hold him
 accountable, perhaps the sun might free him. If the moon's clasp too resolute, maybe
 the sun could persuade a softer course. But yes, driving. Alone, soft. And always at
 night. Dr. Otsuka craved drives after droughts. It was his only way to avoid the fear
