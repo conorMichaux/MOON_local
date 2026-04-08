@@ -64,18 +64,32 @@ time. For now it was to be felt and heard and seen and...---by she and him. No o
 else.
 
 &nbsp; &nbsp; &nbsp; &nbsp; With tenderness, she narrated the moments he felt safest
-in his childhood. And those moments he'd never shared with anyone, she narrated those
-too. He discovered the love she herself was discovering for him. For they each
+in his childhood. And those moments he'd never shared with anyone? Well she narrated
+those too. He discovered the love she herself was discovering for him. For they each
 realized that, on this reading, that the truth and the reality of what he carried
 needed another to be truly real. Without her, without her seeing him in all his
 vulnerability, without *that*, his carried-self could be no more than a mirage: to
 him or to anyone else. And the love. Yes, the love. It stretched his heart like the
 sails of a boat that had been docked for years; or swelled the very same heart of his
-but as if it were a kite, with streamers and strings and sinews. Air escaped through
-the gaps and tears of his heart's sails, his heart's fabric---but the lost air paled
-in comparison to the snapping and the popping and the cracking of his heart's
-skeleton, for the first time in... Caroline thanked him and left. Her story became a
-black box to him again as she walked out of his home with embers freshly scraped off
-his soul. A whisper of awe in her shutting of the door.
+but as if it were a kite, with streamer and string and sinew. Air escaped through the
+gaps and tears of his heart's sails, his heart's fabric---but the lost air paled in
+comparison to the snapping and the popping and the cracking of his heart's skeleton,
+for the first time in... Caroline thanked him and left. Her story became a black box
+to him again as she walked out of his home with embers freshly scraped off his soul.
+A whisper of awe in her shutting of the door.
 
+And so there he was. Driving, alone. Soft and fast. Like his childhood. She knew him
+now. And she knew that he hadn't ever really quite known himself up to then either.
+He felt less alone. Caroline had a way with hearts, it seemed, and it occurred to him
+that no one ever did anything without being in accordance with their own heart. The
+most saintly, the most vile: all did what felt right to them, even under duress, they
+did what felt right under that duress.
 
+Driving through the night soft, alone, and fast: Dr. Otsuka said it, spoke through
+his entombed and adorned and encrusted teeth. I was a woman in this last drought, and
+it felt good. I thought that part was gone, left when I was teenager. It's not. It
+didn't. 
+
+Few pharoahs wake from death. This one did. To have a body without organs is one
+thing; another thing, entirely, to be a body *lacking* organs. Or a body craving
+moon-loss and, consequently, the gain of sated ache.
