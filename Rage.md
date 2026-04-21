@@ -63,33 +63,40 @@ and tears,---and sap that would go on to become amber to the historians of their
 time. For now it was to be felt and heard and seen and...---by she and him. No one
 else.
 
-&nbsp; &nbsp; &nbsp; &nbsp; With tenderness, she narrated the moments he felt safest
-in his childhood. And those moments he'd never shared with anyone? Well she narrated
-those too. He discovered the love she herself was discovering for him. For they each
-realized that, on this reading, that the truth and the reality of what he carried
-needed another to be truly real. Without her, without her seeing him in all his
-vulnerability, without *that*, his carried-self could be no more than a mirage: to
-him or to anyone else. And the love. Yes, the love. It stretched his heart like the
-sails of a boat that had been docked for years; or swelled the very same heart of his
-but as if it were a kite, with streamer and string and sinew. Air escaped through the
-gaps and tears of his heart's sails, his heart's fabric---but the lost air paled in
-comparison to the snapping and the popping and the cracking of his heart's skeleton,
-for the first time in... Caroline thanked him and left. Her story became a black box
-to him again as she walked out of his home with embers freshly scraped off his soul.
-A whisper of awe in her shutting of the door.
+&nbsp; &nbsp; &nbsp; &nbsp; In unfamiliar, foreign words, she narrated the moments he
+felt safest in his childhood. And those moments he'd never shared with anyone? Well
+she narrated those too. He discovered a love for himself she herself was discovering
+for him, too. For they each realized that, on this reading, that the truth and the
+reality of what he carried needed another to be truly real. Without her, without her
+seeing him in all his vulnerability, without *that*, his carried-self could be no
+more than a mirage: to him or to anyone else. And the love. Yes, the love. It
+stretched his heart like the sails of a boat that had been docked for years; or
+swelled the very same heart of his but as if it were a kite, with streamer and string
+and sinew. Air escaped through the gaps and tears of his heart's sails, his heart's
+fabric---but the lost air paled in comparison to the snapping and the popping and the
+cracking of his heart's skeleton, for the first time in... He recalled that horses
+liked to be rode, as Caroline thanked him and left. Her story became a black box to
+him as she walked out of his awareness, with embers freshly scraped off his soul. A
+whisper of awe in her shutting of the door.
 
-And so there he was. Driving, alone. Soft and fast. Like his childhood. She knew him
-now. And she knew that he hadn't ever really quite known himself up to then either.
-He felt less alone. Caroline had a way with hearts, it seemed, and it occurred to him
-that no one ever did anything without being in accordance with their own heart. The
-most saintly, the most vile: all did what felt right to them, even under duress, they
-did what felt right under that duress.
+&nbsp; &nbsp; &nbsp; &nbsp; Driving, alone. Soft and fast. Much like his childhood.
+She knew him now. And she knew that he hadn't ever really quite known himself up to
+then either. He felt less alone. A town, a population of 2 in his heart, it seemed.
+Caroline had a way with hearts, and it occurred to him that no one ever did anything
+without being in accordance with their own heart. The most saintly, the most vile:
+all did what felt right to them, even under duress, they did what felt right under
+that duress.
 
-Driving through the night soft, alone, and fast: Dr. Otsuka said it, spoke through
-his entombed and adorned and encrusted teeth. I was a woman in this last drought, and
-it felt good. I thought that part was gone, left when I was teenager. It's not. It
-didn't. 
+&nbsp; &nbsp; &nbsp; &nbsp; Driving through the night soft, alone, and fast: Dr.
+Otsuka said it, spoke through entombed and adorned and encrusted teeth. I was a woman
+in this last drought. I thought that part was gone, left when I was teenager. It's
+not. It didn't. 
 
-Few pharoahs wake from death. This one did. To have a body without organs is one
-thing; another thing, entirely, to be a body *lacking* organs. Or a body craving
-moon-loss and, consequently, the gain of sated ache.
+&nbsp; &nbsp; &nbsp; &nbsp; Few pharoahs wake from death. Fewer still wake on the
+other side with all their garments. This one did both. To be a body willing world's
+next moon-loss and to be a heart yearning his own gain of sated ache. Otsuka listened
+to his heart with his palm. No sawteeth or flutter waves, but a wave of
+acknowledgement nestled nonetheless somewhere in his heart's work, he knew. Why she
+had left, he didn't know, but regardless he wondered at the state of his heart's
+census: did his heart count, did her departure reduce it, is it empty when he is
+forgetful?
