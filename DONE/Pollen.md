@@ -1,4 +1,4 @@
-# Moonpollen
+# Pollen
 
 Seeded, it shook. Belled, it shook. Smiling, he shook his head. The
 seeded gourd initiated, and the belled staff assented. And the old
@@ -86,21 +86,20 @@ way.
 
 ---I see. What are some examples? I'm curious, sir.
 
----Ah well, that gets into writing the whole book again. Part of the
-solution to the droughts was realizing the rhizomatic structure of
-things. Look at me, for example. I solved them within my hospital system
-and the solution spread from that site in a quite fragmented manner.
+---Ah well, that gets into writing the whole book again. Part of the solution to the
+droughts was realizing this rhizomatic structure within the world. Look at me, for
+example. I solved them within my hospital system and the solution spread from that
+site in a quite fragmented manner.
 
----Can we define rhizome in this context, please?
+---Can we define rhizome, please?
 
 Catherine brought out her voice recorder. Dr. Otsuka asked for a candy
 cigarette. After immediately snapping off a nib of his own as if
 preparing a fountain pen, he began again.
 
----Rhizome in this case refers to a group of elements. In this case all
-life on the planet. None of these rhizome elements are linked, at least
-not by proximity, not even necessarily by relationship or knowledge of each
-other.
+---Rhizome in this case refers to a group of elements. In this case all life on the
+planet. None of these elements are linked, at least not by proximity, not even
+necessarily by relationship or knowledge of each other.
 
 ---Is it off-base to use the language of quantum mechanics here, doctor?
 
@@ -111,9 +110,9 @@ not capture the droughts. Not in their entirety.
 
 ---I see, but please continue. Let's get back to the rhizome.
 
----Yes, of course. I'm fond of the neighborhood metaphor. Which is to
-say, we all belong to a vast neighborhood, Jung called it the collective
-unconscious. I call it a neighborhood. Call me Mr. Rogers if you like.
+---Yes. I'm fond of the neighborhood metaphor. Which is to say, we all belong to a
+vast neighborhood, Jung called it the collective unconscious. I call it a
+neighborhood. Call me Mr. Rogers if you like.
 
 ---I will not but thank you for the offer.
 
@@ -166,4 +165,4 @@ well I mean I'm just out of college recently...
 ---A good biography requires a rhizome of a person. Not an arboreal
 model. The bits and pieces that inform the whole of itself.
 
----Yes.
+Yes.

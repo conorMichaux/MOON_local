@@ -1,4 +1,4 @@
-# Moonraven
+# Raven
 
 The bell rang several times.
 
@@ -9,15 +9,13 @@ she said, "What do you just fed want now!"
 
 A caw, a laugh.
 
-The local raven's bell usage was becoming more frequent. And Caroline
-wasn't quite sure what to do about it, apart from reflecting on her
-mother's warnings about exactly this. "If you give a raven a bell,
-she'll surely ask for more," she'd said. To which Caroline clarified
-that that was the point. The tinting on the old window had started to
-wear out---which was confusing in its own right since wasn't tint
-applied from the inside---when Caroline finally said enough was enough.
-She needed her security deposit back, especially after that last
-hospital visit.
+The local raven's bell tolls were becoming more frequent. And Caroline wasn't quite
+sure what to do about it, apart from reflecting on her mother's warnings about
+exactly this. "If you give a raven a bell, she'll surely ask for more," she'd said.
+To which Caroline clarified that that was the point. The tinting on the old window
+had started to wear out---which was confusing in its own right since wasn't tint
+applied from the inside---when Caroline finally said enough was enough. She needed
+her security deposit back, especially after that last hospital visit.
 
 The psychiatrist had told her bipolar I with psychotic features. Or
 rather, the third one had repeated the diagnosis of the previous two.
@@ -62,31 +60,28 @@ this one moment with her social worker, was a repetition.
 For many, diagnostic receipt is a rush of relief. "Ah, that explains so
 much!" or "It's so nice to know what I have, *finally*." The process is
 protracted, it's true. Our dearest Caroline, though? *Much* different.
-For one thing, this wasn't her first rodeo: previous messengers,
-previous receipts. More than that, Caroline felt alien to those around
-her. Those around her might term it "derealization," but she knew that
-one already and knew better. No, she felt alien in the more literal
-sense. She carried in her a whole suite of patterns, behaviors, and
-loops. They saw these things within her and cast judgment on them. The
-comparison that made the most sense to her was a group of tide poolers
-walking round each microcosm of a pool naming everything in sight before
-moving on to the next. "We call this bipolar I with psychosis in our
-world; you will take special pills to be like us now," the tide poolers
-would whisper to her, the blue-ringed octopus. She'd flare her rings and
-do her best to deliver her neurotoxins into their bloodstreams. They
-tended to wear special gloves, and but of course they had the phylum
-memorized and the diagnosis codes clearly, cleanly printed on the
-receipts. They could have simply handed her the receipt right that
-moment themselves but doing so would require taking one's glove off.
-Dirty work for a *philatelist.* That was a good term for them. What
-better than a misnomer?
+For one thing, this wasn't her first rodeo: previous messengers, previous receipts.
+More than that, Caroline felt alien to those around her. Those around her might term
+it "depersonalization" but she knew that one already and knew better. No, she rather
+felt that alien feeling, and like an animal in a literal sense. She carried in her a
+whole suite of patterns, behaviors, and loops. They saw these things within her and
+cast judgment on them. The comparison that made the most sense to her was a group of
+tide poolers walking round each microcosm of a pool naming everything in sight before
+moving on to the next. "We call this bipolar I with psychosis in our milieu; you will
+take special pills to be like us and live in our culture now," the tide poolers would
+whisper to her, the blue-ringed octopus. She'd flare her rings and do her best to
+deliver her neurotoxins into their bloodstreams. They tended to wear special gloves,
+and but of course they had the phylum memorized and the diagnosis codes clearly,
+cleanly printed on the receipts. They could have simply handed her the receipt right
+that moment themselves but doing so would require taking one's glove off. Dirty work
+for a *philatelist.* That was a good term for them. What better than a misnomer?
 
-This go around in the hospital was not so peachy as the previous ones
-had been because she was required to take a 2-month, long-acting
-injection. Her shrink didn't trust her and therefore refused to let her
-go on any but his own terms. Sadly, for her the terms were two: an
-injection in the arm, like a flu shot, and another in the butt---not
-like a flu shot at all, that one.
+This go around in the hospital was not so peachy as the previous ones had been
+because she was required to take a 2-month, long-acting injection. "They want to
+strip me of my toxins," she thought with a blue-ringed jeer. Her shrink didn't trust
+her and therefore refused to let her go on any but his own terms. Sadly, for her the
+terms were two: an injection in the arm, like a flu shot, and another in the
+butt---not like a flu shot at all, that one.
 
 The social worker didn't hide her disappointment at Caroline's blowup.
 She asked Caroline to take the beanie off her head or at least take it
@@ -129,20 +124,19 @@ presentations; it ultimately became too corrosive for her in that sphere
 of work. She preferred a different kind of capture and, most of all, she
 enjoyed how consensual her version of her new profession was.
 
-How was it that people could go for a walk without crying, she wondered.
-Was it like a leaf quickly pruned before childhood or the teenage years
-wound down? Elbowed out of the way by the more socially high-yield
-behaviors, "those ones that didn't involve crying in public," she
-wondered bitterly this time.
+How was it that people could go for a walk without crying, she wondered. Was it like
+a leaf quickly pruned before childhood or a stem cut before the teenage years wound
+down? Elbowed out of the way by the more socially high-yield behaviors, "those ones
+that didn't involve crying in public," she wondered bitterly this time.
 
 What comforted her most now was the privilege to capture parts lost, to
 sort of reanimate them again after short or long dormancy for the
 client. It startled her not long into the venture when she realized her
 clients were experiencing joy. They were seeing themselves. And the
 worker was the instrument of that seeing. From then on, the worker
-always made sure to be present when a batch of pictures were ready for
-the client. It annoyed some of them, until they realized the kind of
-worker our worker was doing for them.
+always made sure to be present when a batch of pictures were ready for the client. It
+annoyed some of them, until they realized the kind of work our worker was doing for
+them.
 
 While her memory of giving Caroline her diagnosis had stuck with her, it
 was never the symbolism she ruminated on. Rather, the symbolism tended
