@@ -73,4 +73,16 @@ specialties too, of course, but the ultrasound techs had the most charisma and f
 Anesthesia, for example, had a close bond with vampire bats (as one might expect).
 
 
-&nbsp; &nbsp; &nbsp; &nbsp; 
+&nbsp; &nbsp; &nbsp; &nbsp; The bats were chirping and, presumably, using their
+echolocation to troubleshoot the room. Otafuku's room. As she woke, she called on
+them to be quiet. They paid no mind. They were fully animal again. Without the moon
+you couldn't even pay them, she thought with a puff of a smirk. "This won't do, not
+again," she thought. "This can't be the pattern or the deal or whatever. I need
+work-life balance."
+
+&nbsp; &nbsp; &nbsp; &nbsp; A wince and a brightness in the eyes. Pupils dilated and
+allowing all light in. She felt the moon burning against her, from far off and she
+realized that it was neither done with her nor all too happy at her thinking. Her
+employer, was none too thrilled. At least that was the language she adopted for this
+situation. It didn't make sense otherwise and she needed _some_ snorkel for relating
+to this newfound "relationship."
