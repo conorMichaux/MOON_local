@@ -66,7 +66,7 @@ all of us are beautiful and all of us have a toiling, boiling cauldron in us. Al
 needing to be fed. You know why toads and bats?
 
 &nbsp; &nbsp; &nbsp; &nbsp; They cross worlds. Water, land. Night, day. You've got a
-little of us on you know. And you've got Kaye, too. He'll watch over you. How do I
+little bit of us on you now. And you've got Kaye, too. He'll watch over you. How do I
 know? Well, doc, I know from that flood of words you gave the crystal. You had a dog
 and he's visited you too. Kaye is my dog and he's also mine to share, to bestow on
 those capable of comprehending him. I don't know what exactly happened and how, but I
